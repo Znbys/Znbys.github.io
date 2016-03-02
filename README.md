@@ -1,0 +1,2 @@
+# Znbys.github.io
+fuck
